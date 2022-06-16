@@ -1,4 +1,4 @@
-👋 Hi, I’m dig9
+👋 Hi, I’m dig9, Jeong-il Choi.
 
 Annoucement:
 
